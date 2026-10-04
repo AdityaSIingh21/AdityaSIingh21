@@ -32,7 +32,8 @@ I'm actively seeking an opportunity where I can apply my analytical skills to re
 📫 Connect With Me
 
 - GitHub: "AdityaSIingh21" (https://github.com/AdityaSIingh21)
- LinkedIn:https://www.linkedin.com/in/aditya-singh-680607318
+- LinkedIn:
+ (https://www.linkedin.com/in/aditya-singh-680607318)
 - Email: as6202261136@gmail.com
 
 ---
